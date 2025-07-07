@@ -22,4 +22,4 @@
 
 如果你正在寻找一个稳定的、免费的日本AV资源站，请收藏本页。我们提供最全、最热门的影片内容，全天候更新，让你随时随地享受最佳的看片体验。
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/dd54045/68520 ）</span>
